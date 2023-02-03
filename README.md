@@ -2,6 +2,8 @@
 Ideer jag hade under praktiken
 ![image](https://user-images.githubusercontent.com/50366078/211156490-e664184a-365f-4dd5-bcea-8c65d9fa197e.png)
 ![image](https://user-images.githubusercontent.com/50366078/211156504-5f0ca7b3-9db1-4be6-be45-2c81b5ebcacd.png)
+![image](https://user-images.githubusercontent.com/50366078/216549900-bbb56c70-6589-4da1-b1e7-49948dfadb6c.png)
+
 ![image](https://user-images.githubusercontent.com/50366078/211156527-0b524484-0cae-46f5-b0b0-3385cfcd5d05.png)
 ![image](https://user-images.githubusercontent.com/50366078/211156540-3caeb24d-cbe3-4172-a3a8-7729dc24db9f.png)
 ![image](https://user-images.githubusercontent.com/50366078/211156545-c247f8ce-fba0-44fb-9580-566f84ca8820.png)
